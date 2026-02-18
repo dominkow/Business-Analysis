@@ -1,0 +1,1 @@
+Repozytorium skupia się na projektach i analizach biznesowych wykonanych podczas kursu zarządzanie biznesem z matury międzynarodowej. Zawiera badania rynku, analizy strategiczne, marketingowe oraz studia przypadków oraz wykorzystanie narzędzi wspierających podejmowanie decyzji w biznesie.
